@@ -50,6 +50,7 @@ Disallow: /
 User-agent: Sosospider/2.0
 Disallow: /
 
+#Prevent bitches like 100010
 #人日中搜/Chinaso from Ppl's Daily
 User-agent: ChinasoSpider
 Disallow: /
