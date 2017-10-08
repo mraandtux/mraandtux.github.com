@@ -30,12 +30,15 @@ Disallow: /
 User-agent: 360Spider
 Disallow: /
 
+User-agent: HaoSouSpider
+Disallow: /
+
 #网易有道/Youdao from Netease 163
 User-agent: YoudaoBot/1.0
 Disallow: /
 
 #搜搜和搜狗系/Soso and Sogou
-User-agent: sogou spider
+User-agent: Sogou inst spider
 Disallow: /
 
 User-agent: Sogou web spider
