@@ -1,0 +1,1 @@
+del after upload completed
