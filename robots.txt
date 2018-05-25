@@ -57,3 +57,7 @@ Disallow: /
 #人日中搜/Chinaso from Ppl's Daily
 User-agent: ChinasoSpider
 Disallow: /
+
+#阿里神马/SM Search from Alibaba
+User-agent: Yisouspider
+Disallow: /
