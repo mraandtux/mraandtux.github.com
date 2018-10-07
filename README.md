@@ -12,8 +12,8 @@ Bill Gates: Don't let the haircut fool you, I am exceedingly wealthy.
 Homer: (quietly) Get a load of the bowl-job, Marge!
 
 Bill Gates: Your Internet ad was brought to my attention, but I can't figure out what, if
-anything, Compu-Global-Hyper-Mega-Net does, so rather than risk competing with
-you, I've decided simply to buy you out.
+anything, Compu-Global-Hyper-Mega-Net does, **so rather than risk competing with
+you, I've decided simply to buy you out.**
 
 >Homer and Marge quietly discuss this proposal.
 
