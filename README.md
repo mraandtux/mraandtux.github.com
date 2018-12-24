@@ -1,5 +1,7 @@
 ![Created w/ Gimp](https://wx3.sinaimg.cn/large/5df7cabdgy1fydg6ght88j21330jiwpg.jpg)
 
+![Created w/ Gimp](https://wx4.sinaimg.cn/large/5df7cabdgy1fyhxctm5sej20zk0k07ew.jpg)
+
 The following script from _The Simpsons_ is courtesy of [The Simpsons Archive](https://www.simpsonsarchive.com/episodes/5F11.txt).
  We'll keep our eyes on M$.
 >Marge tells Homer Bill Gates is here to see him. Homer panicks, and tells
