@@ -1,6 +1,3 @@
->Sad to see [@cfm_miku_en](https://twitter.com/cfm_miku_en)'s [appearance on Chinese State TV](https://www.youtube.com/watch?v=dQw4w9WgXcQ) has been axed in the Editing Room, despite HUGE RATINGS on last night. Voice of China media group will be suffering from those Furious Viewers - Big Time! (a la [Mr 45](https://twitter.com/realdonaldtrump), [the unaired footage is this link](https://www.bilibili.com/video/av43241704))
-
-
 The following script from _The Simpsons_ is courtesy of [The Simpsons Archive](https://www.simpsonsarchive.com/episodes/5F11.txt).
  We'll keep our eyes on M$.
 >Marge tells Homer Bill Gates is here to see him. Homer panicks, and tells
@@ -32,3 +29,4 @@ Homer: Hey, what the hell's going on!
 Bill Gates: Oh, I didn't get rich by writing a lot of checks! (insane laughter)
             
 >-- [Bill Gates buys Homer's Internet company, "Das Bus"](https://www.youtube.com/watch?v=H27rfr59RiE)
+dropped
