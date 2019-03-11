@@ -1,3 +1,6 @@
+>[The Japs? Those animé-loving, massacre-ignorers? Bosh flimshaw!](https://www.youtube.com/watch?v=Qq7wnMvLYg4)
+(based on a quote by Mr Burns' dad on The Simpsons)
+
 [Dankeschön nach Herr Kato (hamukazu)](https://github.com/hamukazu/lets-get-arrested)
 
 [开源中国报道](https://www.oschina.net/news/105040/infinite-javascript-popup-prank)
