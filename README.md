@@ -29,4 +29,3 @@ Homer: Hey, what the hell's going on!
 Bill Gates: Oh, I didn't get rich by writing a lot of checks! (insane laughter)
             
 >-- [Bill Gates buys Homer's Internet company, "Das Bus"](https://www.youtube.com/watch?v=H27rfr59RiE)
-dropped
