@@ -1,5 +1,5 @@
 # 本人强烈反对某倭国配音员嚟我地度开骚！
->To Mrs. Nasty Meme Face (a JapaneseFrau H------- is eine H--------Frau H------- is eine H--------Frau H------- is eine H--------Frau H------- is eine H-------- Voice Actress + Singer having Gigs in Ghyna this April): You are going to helfefe
+>To Mrs. Nasty Meme Face (a Japanese Voice Actress + Singer having Gigs in Ghyna this April): You are going to helfefe
 >
 >(fake Trump tweet of March-April 2019, the said Jap voice actress/singer will be in [my town mid April that year](http://www.gdwht.gov.cn/index.php/news/details/id/93691.html), according to authorites)
 
