@@ -1,7 +1,7 @@
 # 本人强烈反对某倭国配音员嚟我地度开骚！
 >To Mrs. Nasty Meme Face (a JP Voice Actress + Singer having Gigs in Ghyna this April): You are going to helfefe
 >
->(fake Trump tweet of March-April 2019, the said Jap voice actress/singer will be in [my town mid April that year](https://detail.damai.cn/item.htm?id=587656024769))
+>(fake Trump tweet of March-April 2019, the said Jap voice actress/singer will be in [my town mid April that year](http://www.gdwht.gov.cn/index.php/news/details/id/93691.html), according to authorites)
 
 
 The following script from _The Simpsons_ is courtesy of [The Simpsons Archive](https://www.simpsonsarchive.com/episodes/5F11.txt).
