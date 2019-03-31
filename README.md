@@ -12,7 +12,7 @@ The following script from _The Simpsons_ is courtesy of [The Simpsons Archive](h
 Bill Gates: Mr. Simpson?
 
 Homer: You don't look so rich...
-     
+
 Bill Gates: Don't let the haircut fool you, I am exceedingly wealthy.
 
 Homer: (quietly) Get a load of the bowl-job, Marge!
@@ -24,14 +24,14 @@ you, I've decided simply to buy you out.**
 >Homer and Marge quietly discuss this proposal.
 
 Homer: I reluctantly accept your proposal!
-     
+
 Bill Gates: Well everyone always does. Buy 'em out, boys!
 
 
 >(Gates' lackeys trash the room.)
-            
+
 Homer: Hey, what the hell's going on!
-     
+
 Bill Gates: Oh, I didn't get rich by writing a lot of checks! (insane laughter)
-            
+
 >-- [Bill Gates buys Homer's Internet company, "Das Bus"](https://www.youtube.com/watch?v=H27rfr59RiE)
