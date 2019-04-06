@@ -1,3 +1,7 @@
+![2018/10/22 11:00](https://mraandtux.github.io/neverforget/NeverForget.jpg)
+
+[Taken from location around Oct 2018](https://www.wikidata.org/wiki/Q32391)
+
 >[The Japs? Those animé-loving, massacre-ignorers? Bosh flimshaw!](https://www.youtube.com/watch?v=Qq7wnMvLYg4)
 >
 >(based on a quote by Mr Burns' dad on The Simpsons)
