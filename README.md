@@ -1,4 +1,4 @@
-[![](https://img.shields.io/badge/We_Support_Anti--996-Mega_Corps_Not_Welcome-ff6c00.svg)](https://github.com/996icu/996.ICU/blob/master/README.md)
+[![](https://img.shields.io/badge/We_Support_Anti--996-Mega_Corps_Not_Welcome-ff6c00.svg)](https://github.com/996icu/996.ICU/blob/master/README_CN.md)
 [![](https://img.shields.io/badge/Don't_forget_to_boycott_them!-ff6c00.svg)](https://github.com/996icu/996.ICU/blob/master/blacklist)
 
 # 本人强烈反对某倭国配音员嚟我地度开骚！
