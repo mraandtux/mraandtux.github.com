@@ -1,12 +1,6 @@
 [![](https://img.shields.io/badge/We_Support_Anti--996-Mega_Corps_Not_Welcome-ff6c00.svg)](https://github.com/996icu/996.ICU/blob/master/README_CN.md)
 [![](https://img.shields.io/badge/Don't_forget_to_boycott_them!-ff6c00.svg)](https://github.com/996icu/996.ICU/blob/master/blacklist)
 
-# 本人强烈反对某倭国配音员嚟我地度开骚！
->To Mrs. Nasty Meme Face (a Japanese Voice Actress + Singer having Gigs in Ghyna this April): You are going to helfefe
->
->(This is a fake Trump tweet, the said Jap voice actress/singer will be in [my town mid April that year](http://www.gdwht.gov.cn/index.php/news/details/id/93691.html), according to authorites)
-
-
 The following script from _The Simpsons_ is courtesy of [The Simpsons Archive](https://www.simpsonsarchive.com/episodes/5F11.txt).
  We'll keep our eyes on M$.
 >Marge tells Homer Bill Gates is here to see him. Homer panicks, and tells
