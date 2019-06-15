@@ -2,7 +2,8 @@
 [![](https://img.shields.io/badge/Don't_forget_to_boycott_them!-ff6c00.svg)](https://github.com/996icu/996.ICU/blob/master/blacklist)
 
 >Hong Kong's Leader Carrie Lamb said the recent protess was having "very fine people on both sides". Wrong! I started using the Pharse TWO YEARS AGO, and I will trademark that phrase by my kids!
-(fake Trump tweet of June and July 2019, I ain't supportin' nothin'!)
+>
+>(fake Trump tweet of June and July 2019, I ain't supportin' nothin'!)
 
 
 The following script from _The Simpsons_ is courtesy of [The Simpsons Archive](https://www.simpsonsarchive.com/episodes/5F11.txt).
