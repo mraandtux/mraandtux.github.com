@@ -1,5 +1,4 @@
-[![](https://img.shields.io/badge/We_Support_Anti--996-Mega_Corps_Not_Welcome-ff6c00.svg)](https://github.com/996icu/996.ICU/blob/master/README_CN.md)
-[![](https://img.shields.io/badge/Don't_forget_to_boycott_them!-ff6c00.svg)](https://github.com/996icu/996.ICU/blob/master/blacklist)
+<!--[![](https://img.shields.io/badge/words-ff6c00.svg)](link)-->
 
 >Hong Kong's Leader Carrie Lamb said the recent protess was having "very fine people on both sides". Wrong! I started using the Pharse TWO YEARS AGO, and I will trademark that phrase by my kids!
 >
