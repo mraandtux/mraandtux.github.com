@@ -1,8 +1,14 @@
 <!--[![](https://img.shields.io/badge/words-ff6c00.svg)](link)-->
 
+# 抗议广东有线U宽频对CDN的低支持度，导致部分时段上GitHub无法载入图片、头像或下载源文件！
+
 >Hong Kong's Leader Carrie Lamb said the recent protess was having "very fine people on both sides". Wrong! I started using the Pharse TWO YEARS AGO, and I will trademark that phrase by my kids!
->
->(fake Trump tweet of June and July 2019, I ain't supportin' nothin'!)
+
+>Hong Kong's Leader Carrie Lamb said she "need and bring back Law and Order". She's using my quotes to boost her ratings after the folks in Baejean dumped her like Pattinson dumped Stewart - not approved, will sue!
+
+>Is Kantone invaded by Mexicans? Or there was NO COLLUSION on the city's language? If anyone works here in America and don't speak the language, that person should be FIRED! (Mr President, you spelled my town's name wrong, [here's some "fake news"](https://edition.cnn.com/2019/04/09/asia/endangered-languages-welsh-hawaiian-cantonese-intl/index.html) - #SupportCantoContent)
+
+(this is a series of fake Trump tweets)
 
 
 The following script from _The Simpsons_ is courtesy of [The Simpsons Archive](https://www.simpsonsarchive.com/episodes/5F11.txt).
