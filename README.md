@@ -8,7 +8,7 @@
 
 >Is Kantone invaded by Mexicans? Or there was NO COLLUSION on the city's language? If anyone works here in America and don't speak the language, that person should be FIRED! (Mr President, you spelled my town's name wrong, [here's some "fake news"](https://edition.cnn.com/2019/04/09/asia/endangered-languages-welsh-hawaiian-cantonese-intl/index.html) - #SupportCantoContent)
 
->One of[@elonmusk](https://twitter.com/elonmusk/status/1063629719592026112) 's Favorite Artist, [@cfm_miku_en](https://twitter.com/cfm_miku_en) is coming to Kantone This November, after the Untalented Hologram revisits Hong Kong despite HUGE protess over the weeks. Sad! Will never buy any products endorsed by Her and Her Gang(#LuoTianyi beware)! (Mr President, you did it again - you're spelling is worse than the previous tweet, but [you managed to get your source right](http://whly.gd.gov.cn/audit/content/post_2532976.html))
+>One of [@elonmusk](https://twitter.com/elonmusk/status/1063629719592026112) 's Favorite Artist, [@cfm_miku_en](https://twitter.com/cfm_miku_en) is coming to Kantone This November, after the Untalented Hologram revisits Hong Kong despite HUGE protess over the weeks. Sad! Will never buy any products endorsed by Her and Her Gang(#LuoTianyi beware)! (Mr President, you did it again - you're spelling is worse than the previous tweet, but [you managed to get your source right](http://whly.gd.gov.cn/audit/content/post_2532976.html))
 
 (this is a series of fake Trump tweets)
 
