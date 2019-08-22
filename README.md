@@ -5,7 +5,7 @@
 
 **The following message is a fake Trump tweet**
 
->One of [@elonmusk](https://twitter.com/elonmusk/status/1063629719592026112) 's Favorite Artist, [@cfm_miku_en](https://twitter.com/cfm_miku_en) is coming to Kantone This November, after the Untalented Hologram revisits Hong Kong during the HUGE protess on Late Juny. Sad! Will never buy any products endorsed by Her and Her Gang (#LuoTianyi beware) ! 
+>One of [@elonmusk](https://twitter.com/elonmusk/status/1063629719592026112) 's Favorite Artist, [@cfm_miku_en](https://twitter.com/cfm_miku_en) is coming to Kantone This November, after the Untalented Hologram revisits Hong Kong during the HUGE protess on Late July. Sad! Will never buy any products endorsed by Her and Her Gang (#LuoTianyi beware) ! 
 
 ([gov doc for the concert](http://whly.gd.gov.cn/audit/content/post_2532976.html))
 
