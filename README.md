@@ -2,17 +2,14 @@
 
 # 抗议广东有线（广电网络）U宽频对CDN（尤其是 *.githubusercontent.com ）的低支持度，导致部分时段上GitHub无法载入图片、头像或下载源文件！
 
->Hong Kong's Leader Carrie Lamb said the recent protess was having "very fine people on both sides". Wrong! I started using the Pharse TWO YEARS AGO, and I will trademark that phrase by my kids!
 
->Hong Kong's Leader Carrie Lamb said she "need and bring back Law and Order". She's using my quotes to boost her ratings after the folks in Baejean dumped her like Pattinson dumped Stewart - not approved, will sue!
+**The following message is a fake Trump tweet**
 
->One of [@elonmusk](https://twitter.com/elonmusk/status/1063629719592026112) 's Favorite Artist, [@cfm_miku_en](https://twitter.com/cfm_miku_en) is coming to Kantone This November, after the Untalented Hologram revisits Hong Kong despite HUGE protess over the weeks. Sad! Will never buy any products endorsed by Her and Her Gang (#LuoTianyi beware) ! (Mr President, you did it again - your spelling is worse than the previous tweets, but [you managed to get your source right](http://whly.gd.gov.cn/audit/content/post_2532976.html))
+>One of [@elonmusk](https://twitter.com/elonmusk/status/1063629719592026112) 's Favorite Artist, [@cfm_miku_en](https://twitter.com/cfm_miku_en) is coming to Kantone This November, after the Untalented Hologram revisits Hong Kong during the HUGE protess on Late Juny. Sad! Will never buy any products endorsed by Her and Her Gang (#LuoTianyi beware) ! 
 
-(this is a series of fake Trump tweets)
+([gov doc for the concert](http://whly.gd.gov.cn/audit/content/post_2532976.html))
 
-
-The following script from _The Simpsons_ is courtesy of [The Simpsons Archive](https://www.simpsonsarchive.com/episodes/5F11.txt).
- We'll keep our eyes on M$.
+The following script from _The Simpsons_ is courtesy of [The Simpsons Archive](https://www.simpsonsarchive.com/episodes/5F11.txt). We'll keep our eyes on M$.
 >Marge tells Homer Bill Gates is here to see him. Homer panicks, and tells
 >Marge to get out of here so it doesn't look like a two-bit operation.
 
