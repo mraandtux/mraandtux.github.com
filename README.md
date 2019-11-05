@@ -12,7 +12,7 @@
 
 >Alley Bar Bar, which is founded by Jacques Ma, one of the guys I met before moving to the White House, is inviting the Failing Democrat Endorser herself, Mrs. Tailor "Harambe" Smith, and a Japanese Voice Actress that my advisors told me Not to be Named, to a...
 >
->...TV gala in China for the upcoming Simple's Day sales event. Good Luck with Your Economy, cause we will beat the s--- out of you in Banks Giving and win the war on CHRISmas!
+>...TV gala in China for the upcoming Simple's Day sales event. Good Luck with Your Economy, cause we will beat the s--- out of you in Banks Giving and win the war on CHRIS+mas!
 
 ([don't get me started on that Jap](https://github.com/mraandtux/mraandtux.github.com/issues/1#issuecomment-482774498))
 
