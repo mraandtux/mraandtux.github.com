@@ -3,13 +3,6 @@
 
 # 抗议广东有线（广电网络）U宽频对CDN（尤其是 *.githubusercontent.com ）的低支持度，导致部分时段上GitHub无法载入部分资源！
 
-
-**The following message is a fake Trump tweet**
-
->One of [@elonmusk](https://twitter.com/elonmusk/status/1063629719592026112) 's Favorite Artist, [@cfm_miku_en](https://twitter.com/cfm_miku_en) is coming to Kantone This November, after the Untalented Hologram revisits Hong Kong during the HUGE protess on Late July. Sad! Will never buy any products endorsed by Her and Her Gang (#LuoTianyi beware) ! 
-
-([gov doc for the concert](http://whly.gd.gov.cn/audit/content/post_2532976.html))
-
 The following script from _The Simpsons_ is courtesy of [The Simpsons Archive](https://www.simpsonsarchive.com/episodes/5F11.txt). We'll keep our eyes on M$.
 >Marge tells Homer Bill Gates is here to see him. Homer panicks, and tells
 >Marge to get out of here so it doesn't look like a two-bit operation.
