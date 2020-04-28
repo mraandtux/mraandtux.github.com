@@ -61,3 +61,11 @@ Disallow: /
 #阿里神马/SM Search from Alibaba
 User-agent: Yisouspider
 Disallow: /
+
+#TikTok bans a lot of things - now it's payback time
+# 字节跳动系/Bytedance
+User-agent: Bytespider
+Disallow: /
+
+User-agent: ToutiaoSpider
+Disallow: /
