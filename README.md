@@ -1,9 +1,7 @@
 [![](https://img.shields.io/badge/We_Support_Anti--996-Mega_Corps_Not_Welcome-ff6c00.svg)](https://github.com/996icu/996.ICU/blob/master/README_CN.md)
 [![](https://img.shields.io/badge/Don't_forget_to_boycott_them!-ff6c00.svg)](https://github.com/996icu/996.ICU/blob/master/blacklist)
 
-# 修改[涉健康码条例](https://finance.sina.com.cn/tech/2021-06-02/doc-ikqciyzi7343840.shtml)，增加承认纸质健康证明、非微信或非本省的健康码和行程卡等相关条款，本波疫情结束后须即时撤销，到时本用户头像将恢复彩色！
-
-...anyway, just stay at home and watch anything you want to.
+# A码、B码、C码······你们要够没？是不是以后缓和了还继续[康康](https://zh.wikipedia.org/zh/%E5%A6%82%E6%9E%9C%E6%97%A9%E7%9F%A5%E9%81%93%E7%94%B7%E7%94%9F%E4%B9%9F%E6%9C%83%E8%A2%AB%E6%80%A7%E4%BE%B5)？（我不相信这么多的码，证明不了我的健康状况！）
 
 《DV现场》点歌问卷链接：
 
