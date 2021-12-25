@@ -2,8 +2,4 @@
 
 [![](https://img.shields.io/badge/We_Support_Anti--996-Mega_Corps_Not_Welcome-ff6c00.svg)](https://github.com/996icu/996.ICU/blob/master/README_CN.md)
 
-![](https://mraandtux.github.io/donate/donatetogzcablelistings.png)
-
-《DV现场》点歌问卷链接：
-
-https://www.wenjuan.com/s/7nIJVf/
+Something's changing in 22 - more later
