@@ -2,4 +2,4 @@
 
 [![](https://img.shields.io/badge/We_Support_Anti--996-Mega_Corps_Not_Welcome-ff6c00.svg)](https://github.com/996icu/996.ICU/blob/master/README_CN.md)
 
-![《广州市区有线频道表》2022后计划](https://mraandtux.github.io/gzcablelistings/announcement22.html)
+[《广州市区有线频道表》2022后计划](https://mraandtux.github.io/gzcablelistings/announcement22.html)
