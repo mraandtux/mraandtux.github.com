@@ -1,6 +1,6 @@
 [《广州市区有线频道表》2022后计划](https://mraandtux.github.io/gzcablelistings/announcement22.html) / [《广州市区有线频道表》项目捐款方式](https://mraandtux.github.io/gzcablelistings/donate.htm)
 
-# END C0V1D RESTRICTIONS (M45KING, QR "C0NT4CT TRACING", L0CKD0WNS, MASS T35TING) TO REMOVE THIS FOLLOWING MESSAGE - NO PFIZER OR MODERNA 4 ALL MEANS MORE RONA 4 ALL
+# END ALL C0V1D M4ND8S AND UNAC7IVA7ED VAXXE5 TO REMOVE THIS FOLLOWING MESSAGE - NO PFIZER OR MODERNA 4 ALL MEANS MORE RONA 4 ALL
 
 "Proud Chinese Took Off Their Masks", *People's Daily*, 2019
 
