@@ -1,3 +1,1 @@
-# [《广州市区有线频道表》2022后计划](https://mraandtux.github.io/gzcablelistings/announcement22.html)
-
-# [《广州市区有线频道表》项目捐款方式](https://mraandtux.github.io/gzcablelistings/donate.htm)
+>2015年，在广州市内的有线公司对维护频道表网页无法即时更新的情况下，一个由有线用户创建的频道表页面正式成立。无论遇到任何困境，我们依旧从营业厅、电器卖场和各商户收集有线频道表异动；我们将频道表范围从传统的有线扩展到电信运营商的IPTV服务；我们见证了本地和国内频道高清化的进展，也见证了本地电视业从旺盛到走向衰退的过程。——[《广州市区有线频道表》2022后计划](https://mraandtux.github.io/gzcablelistings/announcement22.html)
